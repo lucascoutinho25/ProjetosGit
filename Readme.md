@@ -1,1 +1,1 @@
-Principais informações iniciais do projeto
+Principais informações iniciais do projeto!
